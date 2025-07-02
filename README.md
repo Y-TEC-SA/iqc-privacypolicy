@@ -42,7 +42,7 @@ Los usuarios pueden:
 - Retirar su consentimiento.
 - Solicitar información sobre el tratamiento de sus datos.
 
-Para ejercer estos derechos, escribir a: **soporte@appmovil.com**
+Para ejercer estos derechos, escribir a: **tecnologiasdigitalesytec@ypf.com**
 
 ## 🧾 Documentación Relacionada
 
